@@ -2,4 +2,4 @@ Simon's Stamp Collection
 
 # ABOUT SIMON
 
-Stuff about Simon's stamps here...
+New York Times raves, "This is the Best Stamp Collection of the Ages."
